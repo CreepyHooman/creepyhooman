@@ -8,5 +8,5 @@ Hi 👋 My name is Tomaž Kozamernik
 
 *   🖥️  Instagram [https://www.instagram.com/trippythreedoo/](https://www.instagram.com/trippythreedoo/)
 
-*   🖥️  Youtube [[[https://www.instagram.com/trippythreedoo/](https://www.youtube.com/@creepyhooman7218/videos)]
+*   🖥️  Youtube [[https://www.instagram.com/trippythreedoo/](https://www.youtube.com/@creepyhooman7218/videos)]
 
